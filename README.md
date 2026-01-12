@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Imran Nitin
+# 💫 Hi 👋, I'm Nitin
 **A passionate Frontend Web Developer.
 
 Email Me 👉 ✉️ **ng9218028@gmail.com** For Collaboration/Project or Anything Else. 😊😊
